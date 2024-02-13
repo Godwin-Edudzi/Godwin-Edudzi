@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Godwin-Edudzi
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning Computer Science and Engineering at University of Mines and Technology, School of Railway and Infrastructural Development
+- 📫 How to reach me godwynjermaine@gmail.com
